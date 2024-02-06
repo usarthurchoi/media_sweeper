@@ -30,5 +30,3 @@ We don't access to your personal information, so nothing to keep safe. You are r
 
 How Can You Contact Us About This Policy?
 If you have questions or comments about this policy, you may email us at usarthurchoi@gmail.com.
-
-9 Milestone Manor Court Germantown MD, 20876 USA
